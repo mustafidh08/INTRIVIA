@@ -10,3 +10,6 @@ INTRIVIA 2026 sangat seruuu dan pastinya menambah banyak knowledge, karena di IN
 
 ## Kesan Pesan Cluster 11 Sejauh Ini 
 Jujur, sejauh ini, ini yang paling jauh sihh hehehe. Jadi di cluster 11 ini, aku menjalin pertemanan yang lebih kuat dan dalm lagi, jadi bukan yang sekedar tau muka orangnya, tapi juga tau nama dan saling sapa kalau ketemu, mungkin itu hal kecil, tetapi dengan hal kecil tersebut, kita bisa menaikan kedekatan kita dengan orang-orang yang kita kenal sedikit demi sedikit. Cluster 11 harus solid yaa hehehehe, kan dah satu departemen, pasti sering lahh bersinggungan, sapa tipis-tipis aja ;))).
+
+## Harapan Kuliah 
+Aku berharap dengan kuliah ini, aku dapat memberikan ROI kepada investor ku yang sudah susah payah membiayai pendidikan ku yaitu orang tua ku. Aku juga berharap, dengan kuliah ini aku dapat meningkatkan taraf berfikir ku sehingga dapat memimpin diri ku sendiri ke arah yang lebih baik setiap harinya. Dengan kuliah ini aku berharap dapat memberikan kontribusi terhadap agama ku, negeri ku, dan almamater ku walaupun itu hanya sedikit.
